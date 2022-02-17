@@ -1,1 +1,0 @@
-Designed By: Armando Pérez Belaonia.
